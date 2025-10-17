@@ -1,16 +1,18 @@
-## Hi there 👋
+<img width="2500" height="2000" alt="image" src="https://github.com/user-attachments/assets/22d4bd92-644d-4f64-bab7-6783e013d6cf" />
 
-<!--
-**mackrzz/Mackrzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+       . biggest adopt me fan 📞
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+      
+
+hihi i go by kory / mac lf friends since im a lonely person 🫩💔
+
+my humor is broken please tell me if you feel uncomfy about it plesse 🙏 
+
+
+fandoms : adopt me , phighting , forsaken , and bfdi/tpot
+
+
+   C + H yes please.
+
+   int YES YES YES!!
