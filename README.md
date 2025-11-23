@@ -1,11 +1,11 @@
-<img width="2500" height="2000" alt="image" src="https://github.com/user-attachments/assets/d3806ae4-3447-4ac6-ac3b-3f716d84279d" />
-
-
-" i need a humans touch but . you don't need me. "
+![image](https://github.com/user-attachments/assets/69edcdcd-fd03-4ac3-8577-7e8961e0af20)
 
 
 
-<img width="2500" height="2000" alt="image" src="https://github.com/user-attachments/assets/088e17d2-6423-47a2-8e3e-045c5d5b1250" /> 
+  "Im about to go beast mode!"
+
+
+
 
 
 hihi im kory or coil im lf for friends because im a lonely mf 💔 (PLEAS INT W/ ME IM SUPA FRIENDLY)
