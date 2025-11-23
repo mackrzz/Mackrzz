@@ -8,8 +8,8 @@
 
 
 
-
-hihi im kory or coil im lf for friends because im a lonely mf 💔 (PLEAS INT W/ ME IM SUPA FRIENDLY)
+           byi/byf
+hihi im kory or coil im lf for friends because im a lonely mf 💔 (PLEAS INT W/ ME IM SUPA FRIENDLY) c+h with me **ANY** time!! even if with friends i dont mind 🥹
 
 basic dni criteria: Over 21, proship, yea yea..
 
