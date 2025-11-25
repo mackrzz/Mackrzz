@@ -2,20 +2,12 @@
 
 
 
-
-      "Im about to go beast mode!"
-
+<h1 align="center">✦*"Im about to go beast mode!"*<
 
 
+<h1 align="center">┆ byi/byf ೄྀ</h1>
 
-           byi/byf
-hihi im kory or coil im lf for friends because im a lonely mf 💔 (PLEAS INT W/ ME IM SUPA FRIENDLY) c+h with me **ANY** time!! even if with friends i dont mind 🥹
 
-basic dni criteria: Over 21, proship, yea yea..
-
-fav games : adopt me , catalog ava creator and phighting 🫘
-
-🥄 - yt interests ,, kubz scouts , coryxkenshin , laughability , flamingo , and 3fs . 📞
 
 
 
