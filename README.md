@@ -1,6 +1,8 @@
-<img width="2048" height="410" alt="image" src="https://github.com/user-attachments/assets/2d6aed27-4c93-4299-942f-6f21b349eef6" />
-<p align="center">
-  <img scr=https://github.com/user-attachments/assets/567840df-af9b-4bb0-a8ed-55375c9cb8cd
+<img width="1280" height="429" alt="image" src="https://github.com/user-attachments/assets/f561f35c-dbba-4c1f-ac90-a25ac6734d35" />
+
+<div align="center">
+
+  ![image](https://github.com/user-attachments/assets/20defebd-9486-42ac-a790-675b740f7f40)
 
 
   
@@ -14,3 +16,13 @@
 <div align="center">
   
 [rentry](https://rentry.co/sharkbitekory) [ataa](https://korruy.atabook.org)
+
+</div align=center>
+
+![image](https://github.com/user-attachments/assets/298d6c4e-f2bb-48de-8ee0-7596e899a4be)
+
+
+<img width="1588" height="1424" alt="image" src="https://github.com/user-attachments/assets/2b485e2f-0c13-47ed-a562-524d8b15c065" />
+
+
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tektur&size=30&duration=1000&pause=1000&color=FF8F1F&center=true&multiline=true&width=435&height=79&lines=Im+about+.+.+.;.+.+.to+go+beastmode+!!!" alt="Typing SVG" /></a>
