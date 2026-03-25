@@ -26,3 +26,4 @@
 
 
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tektur&size=30&duration=1000&pause=1000&color=FF8F1F&center=true&multiline=true&width=435&height=79&lines=Im+about+.+.+.;.+.+.to+go+beastmode+!!!" alt="Typing SVG" /></a>
+<img width="1280" height="429" alt="image" src="https://github.com/user-attachments/assets/8c27dd33-aa27-4407-ab1c-be7fa52d2a6b" />
