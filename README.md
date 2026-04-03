@@ -13,6 +13,15 @@
   
   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mackrzz&color=FF8F1F&style=plastic&label=COIL)
 
+$$\color{yellow}{\text{int always!}}$$
+</div>
+
+$$\color{white}{\text{c+h always welcome even if not in name!}}$$
+</div>
+
+$$\color{orange}{\text{he/her prefered}}$$
+</div>
+
 <div align="center">
   
 [rentry](https://rentry.co/sharkbitekory) [ataa](https://korruy.atabook.org)
