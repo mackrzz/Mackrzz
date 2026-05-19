@@ -27,7 +27,7 @@ $$\color{orange}{\text{sys.......}}$$
 
 <div align="center">
   
-[rentry](https://rentry.co/sharkbitekory) [ataa](https://korruy.atabook.org)
+) [ataa](https://korruy.atabook.org)
 
 </div align=center>
 
